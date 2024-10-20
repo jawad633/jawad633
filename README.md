@@ -3,7 +3,6 @@
 **Phone:** [+92-3480238483](tel:+92-3480238483)  
 **Email:** [jawadpassu@gmail.com](mailto:jawadpassu@gmail.com)  
 **LinkedIn:** [Jawad](https://www.linkedin.com/in/jawad-ur-rahman-129849111/)  
-**GitHub:** [Jawad](https://github.com/jawad633)
 
 ---
 
